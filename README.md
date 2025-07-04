@@ -1,1 +1,1 @@
-https://kawya899.github.io/KawyaCV/
+https://kawya899.github.io/KawyaCV/kawya.html
